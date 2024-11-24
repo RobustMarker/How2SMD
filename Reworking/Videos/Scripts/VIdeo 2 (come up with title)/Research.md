@@ -1,0 +1,1 @@
+!#mention how to properly hold tweasers (halfway on component) its in louis rossmanns video on how to solder.
